@@ -10,3 +10,4 @@ I hold a M.S. in Data Analytics from Georgia Tech 🐝 and a B.S. in Business An
 - ⚡ Fun fact: I'm an Eagle Scout! 🦅
 - 😼 Pets: Three cats, Senna , Zazu, and Ferbie 🐈
 - 😁 I'm a nerd about: Cars, Military History & Ballistics , Video Games, Food, Watches, Combat Sports, Golf, and Football!
+- 📖 John 3:16
